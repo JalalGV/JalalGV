@@ -1,0 +1,4 @@
+- Hi, I’m @JalalGV
+- I’m interested in coding
+- I’m currently learning python
+- My instagram is @_jalal.gahramanov_
